@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤ![Demo](https://github.com/user-attachments/assets/65bb344d-8c85-427e-964b-a44f8e929ca3)
 
 ![Demo](https://gifcity.carrd.co/assets/images/gallery79/d4e73931.gif?v=e3c0bc0f)ㅤㅤ
-$$\color{#af9759}ㅤ:ㅤKEEPㅤMEㅤONㅤFIRE! $$
+$$\color{#af9759}ㅤ:ㅤ... $$
 
 ### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤnicknames:ㅤ$$
 $$\color{#af9759}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
