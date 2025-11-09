@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Demo](https://gifcity.carrd.co/assets/images/gallery78/96c5f38e.gif?v=e3c0bc0f)
 
-### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANAMNESIS.fla ㅤㅤㅤㅤㅤㅤ 377ㅤㅤㅤㅤㅤ $$ ㅤ
+### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ANAMNESIS.fla ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ $$ ㅤ
 ㅤㅤㅤㅤㅤ![Demo](https://gifcity.carrd.co/assets/images/gallery78/68618a99.gif?v=e3c0bc0f)
 
 ㅤㅤㅤㅤ![509586596-65bb344d-8c85-427e-964b-a44f8e929ca3](https://github.com/user-attachments/assets/b506ada7-8ed1-435a-ab57-a29efbcc5c7c)
