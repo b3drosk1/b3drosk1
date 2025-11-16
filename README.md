@@ -17,7 +17,7 @@ $$\color{#af9759}ㅤ:ㅤ... $$
 
 ### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤnicknames:ㅤ$$
 $$\color{#af9759}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
-$$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthomas/tomㅤㅤㅤㅤㅤ$$
+$$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$$
 
 # $$\color{#af9759}ㅤ$$
 
