@@ -1,25 +1,27 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Demo](https://gifcity.carrd.co/assets/images/gallery78/96c5f38e.gif?v=e3c0bc0f)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://gifcity.carrd.co/assets/images/gallery78/96c5f38e.gif?v=e3c0bc0f)
 
 ### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ CHEMICALㅤBURNㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ $$ ㅤ
-ㅤㅤㅤㅤㅤ![Demo](https://gifcity.carrd.co/assets/images/gallery78/68618a99.gif?v=e3c0bc0f)
 
-$$\color{#af9759} Dåㅤkomㅤdenㅤdagenㅤjagㅤinteㅤtroddeㅤfanns $$
-$$\color{#af9759} Denㅤsatteㅤverkligenㅤkanalenㅤurㅤbalans $$
-$$\color{#af9759} Agㅤtroddeㅤaldrigㅤattㅤjagㅤhadeㅤsåㅤfel $$
+### 
+$$\color{#af9759} ...ㅤㅤㅤDåㅤkomㅤdenㅤdagenㅤjagㅤinteㅤtroddeㅤfanns $$
+$$\color{#af9759}ㅤㅤ Denㅤsatteㅤverkligenㅤkanalenㅤurㅤbalans $$
+$$\color{#af9759} ㅤㅤAgㅤtroddeㅤaldrigㅤattㅤjagㅤhadeㅤsåㅤfel $$
+
 
 # $$\color{#af9759}ㅤ$$
 ### 
 
-ㅤㅤㅤㅤ![509586596-65bb344d-8c85-427e-964b-a44f8e929ca3](https://github.com/user-attachments/assets/b506ada7-8ed1-435a-ab57-a29efbcc5c7c)
+ㅤㅤㅤㅤ![154b87a0-826e-4cdc-9655-3fbb9ca71f9b](https://github.com/user-attachments/assets/286c03f8-8c14-445e-8fbd-135a00b45ef1)
 
-![Demo](https://gifcity.carrd.co/assets/images/gallery79/d4e73931.gif?v=e3c0bc0f)ㅤㅤ
+![](https://gifcity.carrd.co/assets/images/gallery79/d4e73931.gif?v=e3c0bc0f)ㅤㅤ
 $$\color{#af9759}ㅤ:ㅤ... $$
 
-### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤnicknames:ㅤ$$
 $$\color{#af9759}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
-$$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$$
+$$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoff-tab,ㅤw2iㅤㅤㅤ$$
 
 # $$\color{#af9759}ㅤ$$
+
+#### $$\color{#af9759} ㅤㅤㅤ $$
 
 #### $$\color{#af9759} ㅤㅤㅤPhotonㅤflashesㅤinㅤmyㅤeyeㅤsometimesㅤIㅤwonderㅤwhereㅤyouㅤareㅤwhileㅤI'mㅤburning $$
 
@@ -30,4 +32,4 @@ $$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$$
 ###### $$\color{#af9759} Fingersㅤinㅤtheㅤwallㅤandㅤit'sㅤallㅤgoneㅤremoveㅤthemㅤradiationㅤblues $$
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Demo](https://gifcity.carrd.co/assets/images/gallery78/c75eea03.gif?v=e3c0bc0f)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://gifcity.carrd.co/assets/images/gallery79/13765fc0.gif?v=e3c0bc0f)
