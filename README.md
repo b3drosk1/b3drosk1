@@ -17,7 +17,7 @@ $$\color{#af9759} ㅤㅤAgㅤtroddeㅤaldrigㅤattㅤjagㅤhadeㅤsåㅤfel $$
 $$\color{#af9759}ㅤ:ㅤ... $$
 
 $$\color{#af9759}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
-$$\color{#af9759} ISTPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoff-tab,ㅤw2iㅤㅤㅤ$$
+$$\color{#af9759} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoff-tab,ㅤw2iㅤㅤㅤ$$
 
 # $$\color{#af9759}ㅤ$$
 
