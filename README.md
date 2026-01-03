@@ -1,4 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://gifcity.carrd.co/assets/images/gallery78/96c5f38e.gif?v=e3c0bc0f)
 
 ### $$\color{#6a697c} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ CHEMICALㅤBURNㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ $$ ㅤ
 
