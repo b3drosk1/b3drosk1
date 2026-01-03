@@ -1,35 +1,35 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://gifcity.carrd.co/assets/images/gallery78/96c5f38e.gif?v=e3c0bc0f)
 
-### $$\color{#4b5622} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ CHEMICALㅤBURNㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ $$ ㅤ
+### $$\color{#6a697c} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ CHEMICALㅤBURNㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ $$ ㅤ
 
 ### 
-$$\color{#af9759} ...ㅤㅤㅤDåㅤkomㅤdenㅤdagenㅤjagㅤinteㅤtroddeㅤfanns $$
-$$\color{#af9759}ㅤㅤ Denㅤsatteㅤverkligenㅤkanalenㅤurㅤbalans $$
-$$\color{#af9759} ㅤㅤAgㅤtroddeㅤaldrigㅤattㅤjagㅤhadeㅤsåㅤfel $$
+$$\color{#595865} ...ㅤㅤㅤDåㅤkomㅤdenㅤdagenㅤjagㅤinteㅤtroddeㅤfanns $$
+$$\color{#595865}ㅤㅤ Denㅤsatteㅤverkligenㅤkanalenㅤurㅤbalans $$
+$$\color{#595865} ㅤㅤAgㅤtroddeㅤaldrigㅤattㅤjagㅤhadeㅤsåㅤfel $$
 
 
 # $$\color{#af9759}ㅤ$$
 ### 
 
-ㅤㅤㅤㅤ![154b87a0-826e-4cdc-9655-3fbb9ca71f9b](https://github.com/user-attachments/assets/286c03f8-8c14-445e-8fbd-135a00b45ef1)
-
-![](https://gifcity.carrd.co/assets/images/gallery79/d4e73931.gif?v=e3c0bc0f)ㅤㅤ
-$$\color{#af9759}ㅤ:ㅤ... $$
-
-$$\color{#af9759}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
-$$\color{#af9759} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoff-tab,ㅤw2iㅤㅤㅤ$$
-
-# $$\color{#af9759}ㅤ$$
-
-#### $$\color{#af9759} ㅤㅤㅤ $$
-
-#### $$\color{#af9759} ㅤㅤㅤPhotonㅤflashesㅤinㅤmyㅤeyeㅤsometimesㅤIㅤwonderㅤwhereㅤyouㅤareㅤwhileㅤI'mㅤburning $$
-
-#### $$\color{#af9759} Outㅤmyㅤoilㅤsoㅤfastㅤaㅤdowntownㅤtrainㅤisㅤrushingㅤpastㅤaㅤthousandㅤloaded $$
-
-##### $$\color{#af9759} ㅤㅤㅤChamberedㅤshootingㅤstars...ㅤdoubtㅤhasㅤtaughtㅤmeㅤhowㅤtoㅤcrawlㅤIㅤstickㅤmy $$
-
-###### $$\color{#af9759} Fingersㅤinㅤtheㅤwallㅤandㅤit'sㅤallㅤgoneㅤremoveㅤthemㅤradiationㅤblues $$
+ㅤㅤㅤㅤ![913e1ab6-c0dc-4fad-86c2-73536cfe7947](https://github.com/user-attachments/assets/27f9a3ca-47fa-48d0-9de5-240f4d326937)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://gifcity.carrd.co/assets/images/gallery02/db379452.gif?v=e3c0bc0f)
+![](https://gifcity.carrd.co/assets/images/gallery84/d5579794.gif?v=e3c0bc0f)ㅤㅤ
+$$\color{#595865}ㅤ:ㅤ... $$
+
+$$\color{#595865}ㅤㅤㅤㅤㅤbedro(W)ski/bedrockㅤ$$ 
+$$\color{#595865} ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoff-tab,ㅤw2iㅤㅤㅤ$$
+
+# $$\color{#6a697c}ㅤ$$
+
+#### $$\color{#6a697c} ㅤㅤㅤ $$
+
+#### $$\color{#6a697c} ㅤㅤㅤPhotonㅤflashesㅤinㅤmyㅤeyeㅤsometimesㅤIㅤwonderㅤwhereㅤyouㅤareㅤwhileㅤI'mㅤburning $$
+
+#### $$\color{#6a697c} Outㅤmyㅤoilㅤsoㅤfastㅤaㅤdowntownㅤtrainㅤisㅤrushingㅤpastㅤaㅤthousandㅤloaded $$
+
+##### $$\color{#6a697c} ㅤㅤㅤChamberedㅤshootingㅤstars...ㅤdoubtㅤhasㅤtaughtㅤmeㅤhowㅤtoㅤcrawlㅤIㅤstickㅤmy $$
+
+###### $$\color{#6a697c} Fingersㅤinㅤtheㅤwallㅤandㅤit'sㅤallㅤgoneㅤremoveㅤthemㅤradiationㅤblues $$
+
+
