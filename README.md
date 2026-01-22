@@ -1,5 +1,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&width=435&height=100&lines=Photon+flashes+in+my+eye%2C;%E3%85%A4%E3%85%A4Sometimes+I+wonder+where+you+are;While+I'm+burning+out+so+fast;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4A+downtown+train+is+rushing+past;%E3%85%A4A+thousand+loaded+chambered+shooting+stars...)
 
+<img width="520" height="520" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/95c59f24-f4f8-444f-a403-03131f7f811a" />
+
+
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=120&lines=bedroski+%5C+bedrock;off-tab%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4w2i)
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=60&height=30&lines=rentry+wip)
