@@ -9,8 +9,8 @@
 ㅤ![](https://files.catbox.moe/62b3p1.gif)
 ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=50&height=30&lines=guns)](https://guns.lol/b3drosk1)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=lightgrey&label=ㅤ?!ㅤ&base=150&style=plastic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=lightgrey&label=ㅤ?!ㅤ&base=135&style=plastic)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=10&duration=4000&pause=1&color=DADADA&vCenter=true&multiline=true&repeat=false&width=435&height=5000&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4best+viewed+on+pc+dark+mode)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=10&duration=4000&pause=1&color=DADADA&vCenter=true&multiline=true&repeat=false&width=435&height=5000&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4ㅤㅤㅤ)
