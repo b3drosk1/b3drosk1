@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤ<img width="720" height="720" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/6a7da4c9-a4e2-4adc-97bc-82d4d23e7e0f" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=170&height=25&lines=Don't+die+just+yet%2C+cowboy)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=175&height=25&lines="Don't+die+just+yet%2C+cowboy")
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=25&height=452&lines=%E3%85%A4) 
 
