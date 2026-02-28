@@ -18,3 +18,5 @@
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=25&height=452&lines=%E3%85%A4) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=333829&style=plastic&base=85&label=visitors )
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=50&height=25&lines=creds)](https://x.com/RuiRiell)
