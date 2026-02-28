@@ -1,16 +1,17 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&width=435&height=100&lines=Photon+flashes+in+my+eye%2C;%E3%85%A4%E3%85%A4Sometimes+I+wonder+where+you+are;While+I'm+burning+out+so+fast;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4A+downtown+train+is+rushing+past;%E3%85%A4A+thousand+loaded+chambered+shooting+stars...)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=5000&pause=1&color=6B7253&multiline=true&repeat=true&width=585&height=25&lines=Sometimes+I+wonder+where+you+are%2C+while+I'm+burning+out+so+fast)
+<img width="720" height="720" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/c89a1fe8-2e07-4870-a7e7-7f99668bca51" />
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=5500&pause=1&color=6B7253&multiline=true&width=675&height=25&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4Downtown+train+is+rushing+past%2C+a+thousand+loaded+chambered+shooting+stars+woah!)
 
-ㅤㅤ<img width="320" height="320" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/95c59f24-f4f8-444f-a403-03131f7f811a" />
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fy6ctyzblifqrcvr7rj57skni4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=1&color=C8C1A1&multiline=true&repeat=false&width=130&lines=bedroski+%5C+bedrock;%E3%85%A4off-tab%E3%85%A4%E3%85%A4w2i)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=120&lines=bedroski+%5C+bedrock;off-tab%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4w2i)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=150&lines=%E3%85%A4%E3%85%A4!+mostly+AFK+!;%E3%85%A4do+NOT+c+%2B+h+please)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=60&height=30&lines=rentry+wip)
-ㅤ![](https://files.catbox.moe/62b3p1.gif)
-ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=4000&pause=1&color=DADADA&multiline=true&repeat=false&width=50&height=30&lines=guns)](https://guns.lol/b3drosk1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fy6ctyzblifqrcvr7rj57skni4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)
+<img width="720" height="720" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/6a7da4c9-a4e2-4adc-97bc-82d4d23e7e0f" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=lightgrey&label=ㅤ?!ㅤ&base=135&style=plastic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=170&height=25&lines=Don't+die+just+yet%2C+cowboy)
 
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=25&height=452&lines=%E3%85%A4) 
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Anton&size=10&duration=4000&pause=1&color=DADADA&vCenter=true&multiline=true&repeat=false&width=435&height=5000&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4ㅤㅤㅤ)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=25&height=452&lines=%E3%85%A4) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=333829&style=plastic&base=100&label=visitors )
