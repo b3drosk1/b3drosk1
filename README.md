@@ -1,20 +1,57 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=4000&pause=1&color=6B7253&multiline=true&repeat=false&width=425&height=25&lines=Sometimes+I+wonder+where+you+are%2C+while+I'm+burning+out+so+fast)
+<div align="center">
 
-ㅤㅤㅤㅤㅤ<img width="820" height="360" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/c89a1fe8-2e07-4870-a7e7-7f99668bca51" />
+![](https://spotify-github-profile.kittinanx.com/api/view?uid=31fy6ctyzblifqrcvr7rj57skni4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=4000&pause=1&color=6B7253&multiline=true&repeat=false&width=550&height=25&lines=Downtown+train+is+rushing+past.+A+thousand+loaded+chambered+shooting+stars+woah!)
+</div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=1&color=C8C1A1&multiline=true&repeat=false&width=130&lines=bedroski+%5C+bedrock;%E3%85%A4off-tab%E3%85%A4%E3%85%A4w2i)
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/a63012a6-cc30-44b2-a5c2-cb19f28067a7" width="700" />
+</div>
+<div align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=150&lines=%E3%85%A4%E3%85%A4!+mostly+AFK+!;%E3%85%A4do+NOT+c+%2B+h+please)
+![](https://readme-typing-svg.demolab.com?font=Anton&size=13&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=274&height=25&lines=y+o+u'v+e%E2%A0%80g+o+t%E2%A0%80m+y%E2%A0%80s+o+u+l%E2%A0%80o+n%E2%A0%80f+i+r+e%E2%A0%80t+o+n+i+g+h+t+!)
+![](https://i.postimg.cc/fb4JzBBM/IMG_1548.gif)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fy6ctyzblifqrcvr7rj57skni4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)
+</div>
+<br>
+<br>
+<img align="left" src="https://github.com/user-attachments/assets/43999c4b-c07a-4005-93d8-414e0f27518e" width="450" />
+<br>
+<br>
+<br>
+<br>
 
-ㅤㅤㅤㅤㅤ<img width="820" height="360" alt="Untitled118_20260122183638" src="https://github.com/user-attachments/assets/6a7da4c9-a4e2-4adc-97bc-82d4d23e7e0f" />
+<div align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=175&height=25&lines="Don't+die+just+yet%2C+cowboy")
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=50&height=25&lines=bedrock)
+![](https://64.media.tumblr.com/8d94d6b5b1e56f02a92d61fbb3633569/07d3e658f8efc25f-0e/s75x75_c1/9d3e71c23fef629c16e3edb872b074f06c05f070.gifv)
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=60&height=25&lines=bedroski)
+<br>
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=80&height=25&lines=!+mostly+afk+!)
+![](https://gifcity.carrd.co/assets/images/gallery287/4dccfb3b.gif?v=20a350bf)
 
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=110&height=25&lines=do+NOT+c+%2B+h+please)
+<br>
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=40&height=25&lines=⠀w2i)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Irish+Grover&size=14&duration=1000&pause=&color=C8C1A1&multiline=true&repeat=false&width=50&height=25&lines=creds)](https://x.com/RuiRiell)
+[![fandoms](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=55&height=25&lines=fandoms)](https://rentry.co/bedroski)
+[![dni](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=25&height=25&lines=dni)](https://rentry.co/bedrockdni)
+[![byi](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=22&height=25&lines=byi)](https://rentry.co/bedrockbyi)
+<br>
+![](https://readme-typing-svg.demolab.com?font=Anton&size=12&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=70&height=25&lines=(all+clickable))
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=b3drosk1&color=5e5e5e&style=flat&base=85&label=visitors )
+![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=50&height=25&lines=my+gang)
+<br>
+[![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=70&height=25&lines=@CASSIOquo)](https://github.com/CASSIOquo)
+![](https://file.garden/Zy7nsVKnFHAuCMhW/pixels/white%20pixel/w20)
+[![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=60&height=25&lines=@x36w5r)](https://github.com/x36w5r)
+
+</div>
+
+<br>
+<br>
+<br>
+<img align="right" src="https://github.com/user-attachments/assets/95ca6b50-0446-449e-a3ec-e35d03569e69" width="450" />
+<br>
+
+[![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=40&height=25&lines=creds)](https://x.com/_0_903454)
