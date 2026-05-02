@@ -34,7 +34,6 @@
 <br>
 ![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=40&height=25&lines=⠀w2i)
 
-[![fandoms](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=55&height=25&lines=fandoms)](https://rentry.co/bedroski)
 [![dni](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=25&height=25&lines=dni)](https://rentry.co/bedrockdni)
 [![byi](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=22&height=25&lines=byi)](https://rentry.co/bedrockbyi)
 <br>
