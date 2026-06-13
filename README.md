@@ -43,7 +43,7 @@
 <br>
 [![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=70&height=25&lines=@CASSIOquo)](https://github.com/CASSIOquo)
 ![](https://file.garden/Zy7nsVKnFHAuCMhW/pixels/white%20pixel/w20)
-[![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=60&height=25&lines=@x36w5r)](https://github.com/x36w5r)
+[![](https://readme-typing-svg.demolab.com?font=Anton&size=14&duration=1&pause=1&color=D5DFDA&multiline=true&repeat=false&width=77&height=25&lines=@rbcyb-xX69)](https://github.com/rbcyb-xX69)
 
 </div>
 
