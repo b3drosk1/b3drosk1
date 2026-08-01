@@ -32,5 +32,5 @@ $\color{#d9d4bd}{\textsf{‎do NOT }}\color{#b11700}{\textsf{c+h}}\color{#d9d4bd
   
 </div>
 
-[<img align="left" src="https://github.com/user-attachments/assets/dfa2c57a-ec81-4349-922a-8ff6734d25ce" width="200" title="click" />](https://github.com/CASSIOquo)‎
-[<img align="right" src="https://github.com/user-attachments/assets/2adf3b27-26d8-4b23-a590-4b1e9b75a0c4" width="210" title="click" />](https://github.com/user-aW6shiiIIit)
+[<img align="left" src="https://github.com/user-attachments/assets/dfa2c57a-ec81-4349-922a-8ff6734d25ce" width="185" title="click" />](https://github.com/CASSIOquo)‎
+[<img align="right" src="https://github.com/user-attachments/assets/2adf3b27-26d8-4b23-a590-4b1e9b75a0c4" width="195" title="click" />](https://github.com/user-aW6shiiIIit)
