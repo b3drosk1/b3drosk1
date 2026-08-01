@@ -4,6 +4,8 @@ kurwa ja pierdole,,,,,,,,,
 
 <br>
 <br>
+<br>
+<br>
 <img align="right" src="https://github.com/user-attachments/assets/d2b706ea-f87a-46ff-852d-46588b262f83" width="370" title="art cred @eutasstar on twitt" />
 <br>
 <br>
